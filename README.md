@@ -7,7 +7,7 @@ Some goals for this school year include maintaining all A’s while also getting
 
 ------------------------------------------------------------------------------------------------------------------
 
-This is my playlist with some songs that I enjoy --> https://open.spotify.com/playlist/5VzPDwqJ1U3tjKW4KxAnaH 
+[This is my playlist with some songs that I enjoy](https://open.spotify.com/playlist/5VzPDwqJ1U3tjKW4KxAnaH)
 
 ------------------------------------------------------------------------------------------------------------------
-
+![](Fondo%20de%20Pantalla%20Movil%20Vision%20Board%20Collage%20de%20Fotos%20Año%20Nuevo%20Aesthetic%20.jpg)
